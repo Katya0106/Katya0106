@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Katya0106
 - 👀 I’m interested in reading, teaching and studying,making things, finding creative ideas and speaking
-- 🌱 I’m currently learning English,child psychology, Computer Science Basics
+- 🌱 I’m  learning English,child psychology, Computer Science Basics currently
